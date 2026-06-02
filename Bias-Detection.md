@@ -1,6 +1,6 @@
 # Detecting-Bias-in-Indian-Educational-Content-
 
-https://blockcrypts.com/
+Visit https://blockcrypts.com/
 
 
 Educational content shapes how students understand the world, their place in it, and what futures are possible for them
